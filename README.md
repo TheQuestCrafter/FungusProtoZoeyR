@@ -15,3 +15,9 @@ https://www.pinterest.com/pin/350014202271356194/
 backgrounds
 http://orig05.deviantart.net/7ba8/f/2012/046/4/c/cursed_temple_of_goddess_of_night_3_by_lathander1987-d4psvw4.jpg
 http://www.furaffinity.net/view/19381031/
+https://www.pinterest.com/pin/737534876448809050/?lp=true
+http://dndspeak.com/2018/02/100-library-books/
+
+sound effects:
+http://soundbible.com/
+https://incompetech.com/
